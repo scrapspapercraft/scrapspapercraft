@@ -1,12 +1,18 @@
-![image alt](https://64.media.tumblr.com/e4efb3e87e58d55c65fbb0326cc144c6/44f8ed6dca2a3f9b-57/s2048x3072/4e6672d56459f6b8ca3bc6c9d74732e560081d41.pnj)
+![image alt](https://64.media.tumblr.com/d1eca9414d91ce9e6b35a5b97d8c5737/aeb4c5a5134f078e-97/s400x600/73fc7b38dcfff42fcd5b808e5858f564422788c3.pnj)
 
 ✎ - ![image alt](https://github.com/scrapspapercraft/papercrafted/blob/main/2026_10_06_0rr_Kleki.png?raw=true)
  hii ! , im scraps .. i LOVE craftinng , i care for my brother a lot , i feel like im forgetting something.. 
 
- ![image alt](https://64.media.tumblr.com/d1eca9414d91ce9e6b35a5b97d8c5737/aeb4c5a5134f078e-97/s400x600/73fc7b38dcfff42fcd5b808e5858f564422788c3.pnj)
 
 
-![image alt](https://64.media.tumblr.com/1d7002e6684d154e55faab7e4698cc6d/e1f5d16e8f0f1c76-f3/s540x810/fa494a2c01a306b602657480ff9f836cf292f68d.gifv)
+
+lesian + non-binary !
+
+5teen yrs old , 
+
+
+
+![image alt](https://64.media.tumblr.com/ac1261b9cc1c66449295e469470c29f9/9664dfbca67ae02e-c7/s1280x1920/0413d4b475e87d0fe7fe273bcaa72e20ecc8ee08.pnj)
 
 
 ✎ -                       " im not exactly a cat.. just cat-like !! "
