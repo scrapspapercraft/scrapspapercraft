@@ -22,4 +22,4 @@ lesian + non-binary !
 ![image alt](https://64.media.tumblr.com/1900dc754dfd56f1bd7dabaaa93cb5d1/c2f96d6b4b87bf79-e7/s640x960/dd72883f27df71eca4c6b5ffc066c7f8fd484177.pnj)
 
 
-$\text{small\it\color{#63202f}hii!$
+$\text{small}\it\color{#63202f}hii!$
