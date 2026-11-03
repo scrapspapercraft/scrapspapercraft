@@ -2,7 +2,7 @@
 
 ✎ - ![image alt](https://github.com/scrapspapercraft/papercrafted/blob/main/2026_10_06_0rr_Kleki.png?raw=true)
 
-$\text\it\color{#63202f}hii!, im scraps :  3 $
+$\text\it\color{#63202f}hii!, im   scraps :  3 $
 
 
 
